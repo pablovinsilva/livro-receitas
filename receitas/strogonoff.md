@@ -18,14 +18,8 @@
 
 1. Aqueça bem uma panela, regue o azeite e doure as tiras de frango.  Junte o conhaque, incline um pouco a panela para que o fogo pule para  dentro e flambe.
 
-   
-
 2. Quando o fogo apagar, junte a cebola, o alho e refogue. Em seguida,  adicione os cogumelos, o tomate, a mostarda e o molho inglês e cozinhe  até o tomate se dissolver.
 
-   
-
 3. Tempere com sal e desligue o fogo. Junte o creme de leite. Sirva em seguida.
-
-   
 
 4. Acompanhe o estrogonofe com arroz branco e banana chips.
